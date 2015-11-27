@@ -1,0 +1,1 @@
+# szablon_gach1
